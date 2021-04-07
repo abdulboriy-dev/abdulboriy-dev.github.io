@@ -1,2 +1,1 @@
-Abdulboriy Sultonov
-Uyga vazifa
+
