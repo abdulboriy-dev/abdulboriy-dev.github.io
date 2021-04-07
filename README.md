@@ -1,2 +1,2 @@
-# abdulboriy-dev.github.io
-Mening birinchi saytim
+# Abdulboriy Sultonov
+Uyga vazifa
