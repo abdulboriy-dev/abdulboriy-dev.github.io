@@ -1,2 +1,2 @@
-# Abdulboriy Sultonov
+Abdulboriy Sultonov
 Uyga vazifa
